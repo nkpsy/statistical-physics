@@ -7,4 +7,4 @@
 欢迎小伙伴们参加翻译工作！
 
 联系方式：email：azfmj22@hotmail.com
-          微信：fmj95817
+          微信：fmj95817 psy1625140705
